@@ -1,0 +1,2 @@
+# Misanthropy
+Misanthropy Night
